@@ -1,4 +1,5 @@
 # ESP8266 Smart Weather Clock License Keygen
+<img width="450" height="450" alt="image" src="https://github.com/user-attachments/assets/a2fa12a1-2133-4e4b-890a-d1ccbc153b20" />
 
 ## How It Works
 
